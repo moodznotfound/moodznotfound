@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @moodznotfound
 - 👀 if im online mean not school if im offline in school
-- 🌱 
+- 🌱 my twitter is moodznotfound
 - 💞️ I’m looking to collaborate on ...
 - 📫 dm me on discord @ is moodznotfound#9021 
